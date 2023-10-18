@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ryleestatler
-- 👀 I’m interested in Game design
+- 👀 I’m interested in Game design / Computer programming
 - Donations appreciated: $Rylee6282627
 
 <!---
